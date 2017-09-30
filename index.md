@@ -1,1 +1,1 @@
-zuixindizhi:www.baidu.com
+zuixindizhiwww.baidu.com
