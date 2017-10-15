@@ -1,1 +1,1 @@
-zuixindizhiwww.baidu.com
+dizih[23.252.167.130:222]
